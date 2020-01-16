@@ -5,3 +5,11 @@ So yeah, i just made an account here and have no idea what i am doing. But here 
 Who knows, maybe it will actually be useful.
 
 At least i tried.
+
+Some vidjas:
+
+https://www.youtube.com/watch?v=Qv78MY9DLtA
+
+https://www.youtube.com/watch?v=2Ba36E4fkOM
+
+https://www.youtube.com/watch?v=CxvZKcSv130
